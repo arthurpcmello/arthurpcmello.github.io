@@ -1,2 +1,0 @@
-# arthurpcmello.github.io
-portfolio
